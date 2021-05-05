@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @imandodo01
+- 👀 I’m interested in Music and technology
+- 🌱 I’m currently learning to be Fullstack Webdeveloper and Android
+- 💞️ I’m looking to collaborate on android projects and learning more with it
+- 📫 How to reach me with my email on iman.sujatmiko00@gmail.com
